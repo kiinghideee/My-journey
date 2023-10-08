@@ -1,1 +1,1 @@
-# My-journey-with-yomi
+# My-journey
